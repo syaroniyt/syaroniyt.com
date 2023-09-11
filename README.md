@@ -1,1 +1,1 @@
-# syaroniyt.github.io
+# syaroniyt.io
