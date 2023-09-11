@@ -1,1 +1,1 @@
-# syaroniyt.io
+# syaroniyt.com
