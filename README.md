@@ -1,1 +1,1 @@
-#syaroniyt.com
+syaroniyt.com
